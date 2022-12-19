@@ -1,0 +1,1 @@
+I created this portfolio to demonstrate all the skills I have learned so far on my journey, and also to showcase some of my favourite projects, and to also provide some more information about me.
